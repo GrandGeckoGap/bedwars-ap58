@@ -1,4 +1,4 @@
-
+Experience bedwars like never before with professional Script for bedwars, the #1 Script. Includes teleport and esp for unbeatable performance.
 
 
 
